@@ -30,7 +30,7 @@
 
 - Feedback I requested I enjoy bullet points or comments with suggestions to easily make edits
 - Feedback to continue my growth I enjoy a nice sandwich 🙂 Sincere compliment, feedback, sincere compliment 🙂 
-  - I respond better to encouragement than to telling me I'm doing something wrong. 
+  - I respond better to encouragement rather than telling me I'm doing something wrong. 
 - I appreciate feedback with time to think on it.
 
 
